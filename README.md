@@ -1,2 +1,5 @@
-# guns-up-mobile-cheat-code-unlimited-gold-gems-hacks
-GUNS UP Mobile Cheat code unlimited gold and free gems hacks glitch
+# GUNS UP Mobile Cheat code unlimited gold and free gems hacks glitch
+
+GUNS UP Mobile Cheat code unlimited gold and free gems hacks glitch - Some of the unit types you can find cannot be unlocked by upgrading command center. Instead, you need some medals to kill the enemy, put them in boxes that can also be dropped from the enemy, or win attacks and defenses. Once enough medals are collected, the unit will be unlocked for your own use. Over time, unit performance will be affected by the improvement of defense capability. To counteract this, you can upgrade your unit in many ways. Compared with assault units, grunt's real purpose is to be cheaper, emit much less energy, and have a shorter cooling time between spawning. This makes them well suited to overwhelm the enemy in absolute numbers. As you guessed, medics can heal two nearby units and make them live longer. That doesn't sound like much, but you can correct it later. guns up mobile money glitch
+
+<a href="https://watermod.icu/guns-up-mobile/">go here</a>
